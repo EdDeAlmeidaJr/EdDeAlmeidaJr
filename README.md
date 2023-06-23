@@ -5,6 +5,9 @@ This is Ed de Almeida's Github profile and here you'll find lots of information 
 First of all, these are my presences in some social networks:
 
 - [LinkedIn](https://www.linkedin.com/in/ed-de-almeida/)
+- [Fecebook 1](https://www.facebook.com/ed.de.almeida/)
+- [Facebook 2](https://www.facebook.com/ed.de.almeida.1968/)
+- 
 
 
 <!--

@@ -1,6 +1,6 @@
 ## Be welcome, mortal!
 
-This is Ed de Almeida's Github profile and here you'll find lots of information about me, Ed de Almeida. And this is not a mere coincidence, I should say!
+This is **Ed de Almeida's Github profile** and here you'll find lots of information about me, Ed de Almeida. And this is not a mere coincidence, I should say!
 
 First of all, these are my presences in some social networks:
 
